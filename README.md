@@ -1,1 +1,0 @@
-# AndrzejSala.github.io
